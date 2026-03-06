@@ -40,3 +40,15 @@ CONTACT
 If you are from a Big Tech in NYC or At Last Productions or Sabrina Carpenter, keep an eye on this profile. In 2037, I will be knocking on your door.
 
 Remember this phrase: "I've waited 15 years to tell you this."
+
+SABRINA FIVE UPDATE
+
+**_Hello everyone, I am here to inform you about the new code I created with NLP (Natural Language Processing). I spent the whole day working on it, and I will leave the code and the text that you should type so that you can use it correctly. Clearly, it is not the official code since I want to avoid copies, etc. Anyway... I am waiting for At Last Productions to appear to see my work at 12 years old. I work with NLP; other things I am still trying to work on. BUT, the project 'The Sabrina Five' is not just about identifying Sabrina's sarcasm. It will decode codes, and in the FUTURE, it will be able to defeat Sabrina's famous voice copies with 99% accuracy. I am studying this system since it is very difficult. If you need to contact me, you can use Instagram. My profile there is the_architech_sabrina_five.
+
+See you next time!
+
+Stay tuned because I will also show the code running there, there will be other social networks of mine.
+
+The Brazilian Architect will not stop.
+
+The Architech_**
